@@ -1,1 +1,0 @@
-# HackerAI-by-Dominik-Kozok
